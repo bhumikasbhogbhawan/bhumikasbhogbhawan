@@ -32,4 +32,17 @@ If you're interested in exploring the delightful world of Bihari vegetarian cuis
 5. **Achar Bhindi** [https://www.youtube.com/watch?v=iHBQggANTLc](https://www.youtube.com/watch?v=iHBQggANTLc)
 6. **Veg Biryani** [https://www.youtube.com/watch?v=iZ5pvZuQsH8](https://www.youtube.com/watch?v=iZ5pvZuQsH8)
 
+# Snapshots
+
+![IMG_20240119_184102](https://github.com/bhumikasbhogbhawan/bhumikasbhogbhawan/assets/157276488/8c901e52-c3b7-409e-a0b7-4e250cda5aa6)
+
+![Videoshot_20240115_183451](https://github.com/bhumikasbhogbhawan/bhumikasbhogbhawan/assets/157276488/b9f17ea0-d44c-4834-8f20-358952b0b709)
+
+![IMG_20240114_105812](https://github.com/bhumikasbhogbhawan/bhumikasbhogbhawan/assets/157276488/6c9f4b23-66fd-441b-b91b-15fc216c1964)
+
+![IMG_20240112_214122](https://github.com/bhumikasbhogbhawan/bhumikasbhogbhawan/assets/157276488/1b13fe16-b604-4147-93cc-2addc0732b6e)
+
+![IMG_20240112_132237](https://github.com/bhumikasbhogbhawan/bhumikasbhogbhawan/assets/157276488/46723ff6-f677-4d74-9cf8-79407a54f758)
+
+
 Happy cooking!
