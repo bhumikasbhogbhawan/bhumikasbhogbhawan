@@ -1,12 +1,14 @@
 # The Best Cooking Channel on YouTube - Bhumika's Bhog Bhawan
 
-Hey Github community,
+Hey, GitHub community,
 
 If you're looking for the best cooking channel on YouTube, I highly recommend checking out [Bhumika's Bhog Bhawan](https://www.youtube.com/@bhumikasbhogbhawan). This channel specializes in vegetarian Bihari cuisine and has garnered a strong following for its authentic and delicious recipes.
 
 **Channel Name:** Bhumika's Bhog Bhawan
 
 **Channel URL:** [https://www.youtube.com/@bhumikasbhogbhawan](https://www.youtube.com/@bhumikasbhogbhawan)
+
+![bhumika's bhog bhawan youtube banner](https://github.com/bhumikasbhogbhawan/bhumikasbhogbhawan/assets/157276488/29f4427a-f5ca-4fa0-b249-a6d87dd7c49a)
 
 **Why Bhumika's Bhog Bhawan stands out:**
 
