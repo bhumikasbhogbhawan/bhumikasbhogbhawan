@@ -24,4 +24,12 @@ I've personally tried several recipes from Bhumika's Bhog Bhawan, and each one h
 
 If you're interested in exploring the delightful world of Bihari vegetarian cuisine, I highly recommend subscribing to Bhumika's Bhog Bhawan. You won't be disappointed!
 
+# Best Recipe List:
+1. **Kadhai Paneer** [https://www.youtube.com/watch?v=km_HcH2B8ro](https://www.youtube.com/watch?v=km_HcH2B8ro)
+2. **Dal palak tadaka** [https://www.youtube.com/watch?v=xOG1dqX-pB8](https://www.youtube.com/watch?v=xOG1dqX-pB8)
+3. **Matar Mashroom Desi Style** [https://www.youtube.com/watch?v=wEEgu42cvG4](https://www.youtube.com/watch?v=wEEgu42cvG4)
+4. **Garma-Gram Aloo Palak Paratha** [https://www.youtube.com/watch?v=uB8rGBow5PA](https://www.youtube.com/watch?v=uB8rGBow5PA)
+5. **Achar Bhindi** [https://www.youtube.com/watch?v=iHBQggANTLc](https://www.youtube.com/watch?v=iHBQggANTLc)
+6. **Veg Biryani** [https://www.youtube.com/watch?v=iZ5pvZuQsH8](https://www.youtube.com/watch?v=iZ5pvZuQsH8)
+
 Happy cooking!
